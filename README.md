@@ -8,5 +8,4 @@ Hi there 👋
 Twitter: https://twitter.com/DownJonathon <BR>
 LinkedIn: https://www.linkedin.com/in/jonathondown/
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: 
 
